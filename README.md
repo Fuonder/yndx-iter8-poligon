@@ -1,0 +1,1 @@
+# yndx-iter8-poligon
